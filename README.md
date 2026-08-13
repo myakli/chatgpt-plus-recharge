@@ -1,6 +1,6 @@
 # 2026 最新 ChatGPT Plus 国内充值全攻略：代充、订阅与避坑指南
 
-<p align="center">本文更新于：2026年08月04日，官方正规渠道，安全无忧</p>
+<p align="center">本文更新于：2026年08月13日，官方正规渠道，安全无忧</p>
 
 ![2026 最新 ChatGPT Plus 国内充值全攻略：代充、订阅与避坑指南](https://github.com/user-attachments/assets/31435d7e-983d-408c-86cf-39436600c2d7)
 
